@@ -1,1 +1,1 @@
-# new-project
+# new-project I'm a Finance professional wiht 6+ years of experience. I currently work as a Finance Manager (Corp. Fin.) for a bank. My previous experience involved FP&A supporting Fin Tech. My undergrad and grad degrees are in Finance. I would like to learn coding and software to make a career transition into IT.
